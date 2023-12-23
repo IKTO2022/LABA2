@@ -1,1 +1,1 @@
-# LABA2 Mirskih Morozov Boyko
+# LABA2 IKTO-27 Mirskih Morozov Boyko
