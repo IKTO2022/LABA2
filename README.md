@@ -1,1 +1,1 @@
-# LABA2
+# LABA2 Mirskih Morozov Boyko
